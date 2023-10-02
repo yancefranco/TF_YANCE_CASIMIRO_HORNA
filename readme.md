@@ -4,7 +4,7 @@
 **Código:** U202013614  
 **Correo:** u202013614@upc.edu.pe
 
-<img src=""https://media.discordapp.net/attachments/1148057148522233868/1156237601515257936/WIN_20230926_09_34_37_Pro.jpg?ex=651c26ae&is=651ad52e&hm=a57bd88b5a6bda2cc12164f8271e629cd590c678c2fa841fe5f12f7f0bb4d4a7&=&width=720&height=405"" alt="Franco Felix Yance Gutierrez">
+<img src="https://media.discordapp.net/attachments/1148057148522233868/1156237601515257936/WIN_20230926_09_34_37_Pro.jpg?ex=651c26ae&is=651ad52e&hm=a57bd88b5a6bda2cc12164f8271e629cd590c678c2fa841fe5f12f7f0bb4d4a7&=&width=720&height=405" alt="Franco Felix Yance Gutierrez">
 
 ## Resumen
 
